@@ -10,7 +10,9 @@ in the sfw furry community and the sfw tickle community.
 
 
 i love music - my favorite artists are grandson and stomachbook.
+
 excoriation disorder and morsicatio buccarum.. gulp.
+
 suspected POTS.
 
 
@@ -18,6 +20,7 @@ fandom list :: rick and morty !!!, inside job, smiling friends, solar opposites,
 
 
 my favorite srs ships :: rick x prime x tox, rick x prime, cop rick x miami rick, morty x evil morty, diane x rick, jerry x beth.
+
 my favorite crackships :: miami morty x gucci morty, birdperson x mr. nimbus.
 
 
