@@ -20,7 +20,7 @@ excoriation disorder and morsicatio buccarum.. gulp.
 suspected POTS.
 
 
-fandom list :: rick and morty !!!, inside job, smiling friends, solar opposites, red dead redemption 2, gravity falls, adventure time, fionna and cake, trolls the beat goes on, toy story, spongebob, pirates of the caribbean, star vs the forces of evil, invader zim, and valorant.
+fandom list :: rick and morty !!!, inside job, smiling friends, solar opposites, red dead redemption 2, gravity falls, adventure time, fionna and cake, trolls the beat goes on, toy story, spongebob squarepants, pirates of the caribbean, star vs the forces of evil, invader zim, and valorant.
 
 
 my favorite srs ships :: rick x prime x tox, rick x prime, cop rick x miami rick, morty x evil morty, diane x rick, jerry x beth, lemongrab x lsp, cypher x kay/o x omen, cypher x omen, dutch x hosea, korvo x terry, branch x poppy, smidge x milton, buzz x woody
@@ -30,6 +30,9 @@ my favorite crackships/cross ships :: miami morty x gucci morty, birdperson x mr
 
 
 my favorite familial/platonic ships :: rick & stan & ford, cypher & killjoy, arthur & john, kay/o & brimstone & tejo, tejo & veto & waylay, dipper & dib & morty, gaz & summer & mabel, jack & barbossa, guy diamond & smidge, woody & jessie
+
+
+ask me about my beloved rick and morty ocs/aus..(naricoleptic, morthamphetamine, diva rick, juggalo rick, scavenger morty, and afflicted rick..)🤤🤤
 
 
 DNI DNI DNI DNI PROSHIP/DARKSHIP DNI DNI DNI DNI RICKORTY DNI DNI DNI JERRICK DNI DNI SUMMER X MORTY DNI DNI DNI DNI
