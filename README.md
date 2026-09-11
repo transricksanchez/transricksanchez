@@ -6,6 +6,8 @@ rick sanchez past life fictionkin/fullfic, doubles dni.
 
 artist, writer, and roleplayer.
 
+i do art trades and commissions. I also love roleplaying, I'm just a bit nervous to/have a hard time writing long messages/get scared of being ooc.. but if anyone wants to..👀. lmk if interested in any.
+
 sagittarius.
 
 in the sfw furry community and the sfw tickle community.
@@ -28,9 +30,6 @@ my favorite crackships/cross ships :: miami morty x gucci morty, birdperson x mr
 
 
 my favorite familial/platonic ships :: rick & stan & ford, cypher & killjoy, arthur & john, kay/o & brimstone & tejo, tejo & veto & waylay, dipper & dib & morty, gaz & summer & mabel, jack & barbossa, guy diamond & smidge, woody & jessie
-
-
-i do art trades and commissions, lmk if interested.
 
 
 DNI DNI DNI DNI PROSHIP/DARKSHIP DNI DNI DNI DNI RICKORTY DNI DNI DNI JERRICK DNI DNI SUMMER X MORTY DNI DNI DNI DNI
