@@ -1,6 +1,7 @@
 ## hi hello hi
 
-(pfp an edited screenshot made by lucilla/gibson/summer/toby)
+(pfp made by ME)
+
 
 rick sanchez past life fictionkin/fullfic, doubles dni.
 
