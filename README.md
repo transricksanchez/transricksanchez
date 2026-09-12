@@ -33,7 +33,7 @@ Suspected POTS.
 </div>
 
 ##
-FANDOM LIST :: Rick and Morty !!!, Inside Job, Smiling Friends, Solar Opposites, Futurama, Red Dead Redemption 2, Gravity Falls, Adventure Time, Fionna and Cake, Trolls The Beat Goes On, Toy Story, Spongebob SquarePants, Pirates Of The Caribbean, Star VS The Forces Of Evil, Invader Zim, Kate And Mim-Mim, and VALORANT.
+FANDOM LIST :: Rick and Morty !!!, Inside Job, Smiling Friends, Solar Opposites, Futurama, Red Dead Redemption 2, Gravity Falls, Adventure Time, Fionna and Cake, Trolls The Beat Goes On, Toy Story, Spongebob SquarePants, Regular Show, Pirates Of The Caribbean, Star VS The Forces Of Evil, Invader Zim, Kate And Mim-Mim, and VALORANT.
 ##
 
 MY FAVORITE SRS SHIPS :: Rick x Prime x Tox, Rick x Prime, Cop Rick x Miami Rick, Morty x Evil Morty, Diane x Rick, Jerry x Beth, Lemongrab x Lumpy Space Princess, Cypher x KAY/O x Omen, Cypher x Omen, Dutch x Hosea, Korvo x Terry, Branch x Poppy, Tach/Tack x Gobble, Smidge x Milton, Buzz x Woody
