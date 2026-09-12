@@ -3,6 +3,10 @@
 (pfp made by ME)
 
 
+DNI DNI DNI DNI PROSHIP/DARKSHIP DNI DNI DNI DNI RICKORTY DNI DNI DNI JERRICK DNI DNI SUMMER X MORTY DNI DNI DNI DNI
+also dni homophobes, transphobes, racists, ableists, etc etc.
+
+
 rick sanchez past life fictionkin/fullfic, doubles dni.
 
 artist, writer, and roleplayer.
@@ -35,6 +39,3 @@ my favorite familial/platonic ships :: rick & stan & ford, cypher & killjoy, art
 
 ask me about my beloved rick and morty ocs/aus..(naricoleptic, morthamphetamine, diva rick, juggalo rick, scavenger morty, and afflicted rick..)🤤🤤
 
-
-DNI DNI DNI DNI PROSHIP/DARKSHIP DNI DNI DNI DNI RICKORTY DNI DNI DNI JERRICK DNI DNI SUMMER X MORTY DNI DNI DNI DNI
-also dni homophobes, transphobes, racists, ableists, etc etc.
