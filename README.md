@@ -33,7 +33,7 @@ Suspected POTS.
 </div>
 
 ##
-FANDOM LIST :: Rick and Morty !!!, Inside Job, Smiling Friends, Solar Opposites, Red Dead Redemption 2, Gravity Falls, Adventure Time, Fionna and Cake, Trolls The Beat Goes On, Toy Story, Spongebob SquarePants, Pirates Of The Caribbean, Star VS The Forces Of Evil, Invader Zim, Kate And Mim-Mim, and VALORANT.
+FANDOM LIST :: Rick and Morty !!!, Inside Job, Smiling Friends, Solar Opposites, Futurama, Red Dead Redemption 2, Gravity Falls, Adventure Time, Fionna and Cake, Trolls The Beat Goes On, Toy Story, Spongebob SquarePants, Pirates Of The Caribbean, Star VS The Forces Of Evil, Invader Zim, Kate And Mim-Mim, and VALORANT.
 ##
 
 MY FAVORITE SRS SHIPS :: Rick x Prime x Tox, Rick x Prime, Cop Rick x Miami Rick, Morty x Evil Morty, Diane x Rick, Jerry x Beth, Lemongrab x Lumpy Space Princess, Cypher x KAY/O x Omen, Cypher x Omen, Dutch x Hosea, Korvo x Terry, Branch x Poppy, Tach/Tack x Gobble, Smidge x Milton, Buzz x Woody
@@ -42,7 +42,7 @@ MY FAVORITE SRS SHIPS :: Rick x Prime x Tox, Rick x Prime, Cop Rick x Miami Rick
 MY FAVORITE CRACKSHIPS :: Miami Morty(my version) x Gucci Morty, Birdperson x Mr. Nimbus, Dipper x Morty, Evil Morty x Mabel, Lemongrab x Prime, Rick x Reagan, Dipper x Dib, Jack(Sparrow) x Arthur, Guy Diamond x Creek, Morty x Yumyulack, Zim x Yumyulack, Mabel x Star, Pim x Spongebob
 
 
-MY FAVORITE FAMILIAL/PLATONIC SHIPS :: Rick & Stan & Ford, Cypher & Killjoy, Arthur & John, KAY/O & Brimstone & Tejo, Tejo & Veto & Waylay, Dipper & Dib & Morty, Gaz & Summer & Mabel, Jack & Barbossa, Guy Diamond & Smidge, Woody & Jessie
+MY FAVORITE FAMILIAL/PLATONIC SHIPS :: Rick & Stan & Ford, Cypher & Killjoy, Arthur & John, KAY/O & Brimstone & Tejo, Tejo & Veto & Waylay, Dipper & Dib & Morty, Gaz & Summer & Mabel, Jack & Barbossa, Guy Diamond & Smidge, Fry & Bender, Woody & Jessie
 ##
 
 
