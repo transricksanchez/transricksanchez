@@ -19,7 +19,7 @@
 
 
 <p align="right">I love music - my favorite artists are grandson and STOMACHBOOK.
-<p align="right">I love sharks, hyenas, bats, vultures, snakes, leopard seals, sea lions, elk/deer, bunnies .. <3333
+<p align="right">I love sharks, hyenas, bats, vultures, snakes, leopard seals, sea lions, elk/deer, bunnies, shoebills .. <3333
 <p align="right">I also rlly love wendigo and southern dragons.
 
 ##
