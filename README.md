@@ -1,4 +1,8 @@
 <div align="center">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=transricksanchez.transricksanchez&"  />
+</div>
+
+<div align="center">
   <img height=400 src="https://i.postimg.cc/xCGgLhmR/Tumblr-l-400993395908437.png"  />
 </div>
 
